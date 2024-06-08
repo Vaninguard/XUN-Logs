@@ -2,4 +2,4 @@
 These are the unfiltered chat logs from the false UN Group "XUN | United Nations".
 These people support hood organisations (or rather, terrorist organisations) in the name of "roleplay" and had banned the owner of Vaninguard over opposing their ideas. 
 
-We will not be naming those involved in this terrorist organisation as we do not advocate for harassment of those involved. The logs are uploaded as a form of transparency.
+We will not be naming those involved in this terrorist organisation as we do not advocate for harassment of those involved. The logs are uploaded as a form of transparency and it is our duty to protect the free speech of others in the UN group.
